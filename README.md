@@ -1,0 +1,1 @@
+# belarc-advisor-product-key
